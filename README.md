@@ -11,6 +11,6 @@ Meu nome é phina ormil
    -  ### Você pode entrar em contato comigo 📫
 
    -  ormil.phina@escola.pr.gov.br
- tab
-   -  ![](https://tenor.com/pt-BR/search/cheers-gifs)
+
+  ![](https://tenor.com/pt-BR/search/cheers-gifs)
      
